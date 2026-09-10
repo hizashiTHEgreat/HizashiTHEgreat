@@ -1,4 +1,7 @@
-## yo
+## yo <img src="https://y2k.neocities.org/blinkiez/newbatch/bZWkxwk.gif"/><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/dc1d07c8-208f-42fb-bd18-d174b749549e" />
+<img src="https://y2k.neocities.org/blinkiez/1825451pau7fgs02p.gif"/><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/9e815290-345e-4243-8527-8d07db0c0804" /><img src="https://adriansblinkiecollection.neocities.org/h31.gif"/><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/54ed9334-247b-4ec7-bcb1-a5ef5dd2e364" />
+
+
 
 <!--<img src="https://adriansblinkiecollection.neocities.org/a3.gif"/>DONTMESS WITH MY TWIN<img src="https://adriansblinkiecollection.neocities.org/i9.gif"/><img src="https://adriansblinkiecollection.neocities.org/x44.gif"/><img src="https://adriansblinkiecollection.neocities.org/h46.gif"/>< 
 
