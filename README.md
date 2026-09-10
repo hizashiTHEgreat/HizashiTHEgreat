@@ -6,6 +6,10 @@ enjoy my present mic obsession! (NOW PLAYING ..c.h.r.o.m.i.k.o.p.i.a<img src="ht
 
 <img src="https://i.pinimg.com/originals/f2/cb/82/f2cb82272988076af9f9b8ed8b1ee2e3.gif" alt="This may contain: a man wearing sunglasses and smiling with his hand up in the air as if he is waving"/> <img src="https://i.pinimg.com/originals/d7/c0/c5/d7c0c505b2a9393f130419ca99cc863c.gif" alt="This may contain: an anime character with blonde hair and glasses looking up at something in front of him"/>
 
+IM A PINTEREST ADDICT! I LIVE FOR IT LMAO! WBU? WE ALL LOVE IT HERE HEHE
+
+     Heres my stamp collection! (u can cpy nd paste em for urs or just to collect idm)
+
 
 
 
