@@ -1,9 +1,14 @@
-## Hi there 👋
+## yo
 
-<!--
-**hizashiTHEgreat/HizashiTHEgreat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<!--<img src="https://adriansblinkiecollection.neocities.org/a3.gif"/>DONTMESS WITH MY TWIN<img src="https://adriansblinkiecollection.neocities.org/i9.gif"/><img src="https://adriansblinkiecollection.neocities.org/x44.gif"/><img src="https://adriansblinkiecollection.neocities.org/h46.gif"/>< 
+
+I LIKE BLINKIES 
+
+IMAVAMPIRE ..and I only want THEIR blood ..
 
 Here are some ideas to get you started:
+<img src="https://y2k.neocities.org/blinkiez/1825451pau7fgs02p.gif"/><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/daae8b68-764b-4d67-9785-722574906a6c" /><img src="https://adriansblinkiecollection.neocities.org/h46.gif"/><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/96d63b82-0e55-49f7-8b7e-bffde870a53a" />
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
