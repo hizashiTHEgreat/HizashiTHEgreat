@@ -2,7 +2,7 @@
                    <img src="https://i.pinimg.com/originals/42/f2/35/42f2353783488ddc4dc55a4ae5ec5ae4.gif" alt="This may contain: an anime character with green hair holding his hands up to his face and looking at the camera"/>
 
                           вαѕι¢ αвт мє🥀
-
+quote :[Irl me C+H✔] hizashi get here please lll bark
 -----------------------------------------------------------------°^
            >ɪ'ᴍ ʜɪᴢᴀsʜɪ sʜɪɴᴊɪ ! 𝟷𝟻 ʏᴇᴀʀs ᴏʟᴅ ᴀɴᴅ ᴛʜᴇ ᴄᴏᴄᴋʏᴇsᴛ ʙᴏʏ ᴜ ᴡɪʟʟ ᴇᴠᴇʀ ᴍᴇᴇᴛ
            
